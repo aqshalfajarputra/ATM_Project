@@ -12,3 +12,4 @@
 ![j](https://cloud.githubusercontent.com/assets/22128258/22911416/2b74091c-f292-11e6-8d7c-f76162b8514d.png)
 ![k](https://cloud.githubusercontent.com/assets/22128258/22911415/2b6dfb9e-f292-11e6-9cec-fdf4700848a9.png)
 ![l](https://cloud.githubusercontent.com/assets/22128258/22911413/2b65929c-f292-11e6-9a98-be671be29cbc.png)
+# Aqshal Fajar Putra, XIRPL1, 02, 4667/1386.070, SMK Telkom Malang.
